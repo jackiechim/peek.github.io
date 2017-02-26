@@ -2,6 +2,8 @@
 
 _"Wear your sparkle!"_
 
+(https://youtu.be/E4b_Pi5awq0)
+
 Peek is a line of everyday wear jewelry with a touch of the new generation and fun!
 
 # About the Designer!
